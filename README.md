@@ -1,6 +1,6 @@
 ## Hi, I'm Shreyansh ✨
 
-🧑🏼‍💼Software Engineer at LTTS<br/>
+🧑🏼‍💼Software Engineer<br/>
 🧠Developer providing high-impactful solutions<br/>
 🚧Building cool projects<br/>
 🌐Upscaling myself with cutting-edge technolgies<br/>
